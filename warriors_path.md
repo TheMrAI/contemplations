@@ -1,4 +1,4 @@
-# The warrior's path
+# The warrior's path - IN PROGRESS
 
 Who is a warrior and what does it really mean to walk the path of the warrior?
 Does it mean that one is ready for combat? To kill if neccessary or to fight
