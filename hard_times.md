@@ -1,6 +1,32 @@
 
 # Hard times - IN PRGOGRESS
 
+Topic: How to handle hard times?
+
+## Reading list and notes
+
+After struggling to write a few lines about hard times I have realized that there is much more left to be said about the topic and what I have done is nothing more but a superficial scratch on the surface. What I have for the moment is true and rings true to me, but now it seems evident there is not much more to say. Well, it is alright. The first time I have ever embarked on this journey, it is supposed to be difficult. Non the less the question interests me greatly and the work has to be done.
+To do a good job of the task at hand I have referred to the essay writing guidelines at [Essay Writing Guide](https://docs.google.com/viewer?url=http://jordanbpeterson.com/wp-content/uploads/2018/02/Essay_Writing_Guide.docx). This has illuminated me to the fact that I have no idea how to write properly and that I should read a bit more about the topic, so that I have something to actually say.
+First task is to collect the information. Listed a few books below that have already inspired me and some that should be read and understood fully. What doing this has shown me is that I seem to have accidentally started attacking the problem from every side. The Psychological aspects, offering solutions from our understanding of human behavior, Military aspects or how a modern warrior would handle life. Lastly from a Religious aspect. Based on generational knowledge and wisdom that seems to have been lost in the modern world. Discarded for facts and proofs, however they might be more important now than ever to glue humanities fractured knowledge into one coherent whole.
+
+In any case I have no idea yet what I am rambling about, but one thing seems to be certain. There seems to be no single solution and to me that seems to indicate that we haven't understood something as a species just yet. Most likely the truth we seek is at the point where all, especially conflicting ideas intersect.
+
+### Psychological
+
+- 12 Rules for Life - Jordan B. Peterson
+- In the realm of hungry ghosts - Gábor Máté
+
+### Military
+
+- Can't hurt me - David Goggins
+- Extreme Ownership: How U.S. Navy SEALs Lead and win - Jocko Willink, Leif Babin
+
+### Religion
+
+- Tao Te Ching - Lao Tzu
+- The Book on the Taboo Against Knowing Who You Are - Alan Watts
+
+
 This essay will be about the hard times, what they are and what one might be able to do about them when they inevitably arrive. Why am I even bothering to
 write about this? Multiple reasons really. Encountered them many times and
 each time I have felt the same things over and over again. That there is
@@ -81,5 +107,3 @@ well that smoking a pack a day is ruining your health, or getting drunk all the
 time is a waste of time. Knowing the issue and knowing that you should stop,
 doesn't seem to bring you closer to your salvation. There is simply nothing you
 seem to be able to do about it.
-
-## What to do
