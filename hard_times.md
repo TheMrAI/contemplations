@@ -11,21 +11,27 @@ First task is to collect the information. Listed a few books below that have alr
 
 In any case I have no idea yet what I am rambling about, but one thing seems to be certain. There seems to be no single solution and to me that seems to indicate that we haven't understood something as a species just yet. Most likely the truth we seek is at the point where all, especially conflicting ideas intersect.
 
+Write some notes, then outlines.
+
 ### Psychological
 
-- 12 Rules for Life - Jordan B. Peterson
-- In the realm of hungry ghosts - Gábor Máté
+#### 12 Rules for Life - Jordan B. Peterson
+
+#### In the realm of hungry ghosts - Gábor Máté
+
+The book focuses on addiction and how it occurs.
 
 ### Military
 
-- Can't hurt me - David Goggins
-- Extreme Ownership: How U.S. Navy SEALs Lead and win - Jocko Willink, Leif Babin
+#### Can't hurt me - David Goggins
+
+#### Extreme Ownership: How U.S. Navy SEALs Lead and win - Jocko Willink, Leif Babin
 
 ### Religion
 
-- Tao Te Ching - Lao Tzu
-- The Book on the Taboo Against Knowing Who You Are - Alan Watts
+#### Tao Te Ching - Lao Tzu
 
+#### The Book on the Taboo Against Knowing Who You Are - Alan Watts
 
 This essay will be about the hard times, what they are and what one might be able to do about them when they inevitably arrive. Why am I even bothering to
 write about this? Multiple reasons really. Encountered them many times and
