@@ -28,8 +28,8 @@ The 12 rules are:
    5. Do not let your children do anything that makes you dislike them
    6. Set your house in perfect order before your criticize the world
    7. Pursue what is meaningful not what is expedient
-   8. Tell the truth - or, at least, don't lie
-   9. Assume that the person you are listening to might know something you don't
+   8. Tell the truth - or, at least, don't lie CHECKED
+   9. Assume that the person you are listening to might know something you don't CHECKED
    10. Be precise in your speech
    11. Do not bother children when they are skateboarding
    12. Pet a cat when you encounter one on the street
@@ -54,6 +54,15 @@ Rule 7 is a hard one to follow in todays world. Doing expedient things one after
 
 Rule 8 is a nasty one. Telling the truth or not lying is no simple task. Not at all. The difficulty lies in what was already said in Rule 6. One must be able to be truthful with themselves first and foremost, they have to learn to watch and understand the opposing voices inside their minds and act on them when necessary. Not to shun them and push them down. A person who cannot stand up for themselves will shrink in the eyes of others and in theirs. A shrunken person, now learned in their incapability is doomed to repeatedly undermine their lives as long as they keep lying to themselves about what they need and deserve in life. Telling the truth is not just done for the sake of working with reality and not trying to bend it to our will, but it is for seeing the truth, to see the things as they are, because then, and only then can one do something about it.
 "What saves is the willingness to learn from what you don't know." White lies, lies or any untruthful deed does nothing of value, but facilitates the avoidance of responsibly doing what we know needs to be done.
+
+Rule 9 or the power of silence. Silence of the prematurely judgmental mind, the one that wants to solve the problem now, the one that is afraid to be changed and challenged by the information that may have been said. Truly listening to someone is hard and even dangerous.
+Many quotations are made from Carl Rogers which need to be repeated here as well:
+"The great majority of us cannot listen; we find ourselves compelled to evaluate, because listening is too dangerous. The first requirement is courage, and we do not always have it."
+Acting in an argument:
+"Stop the discussion for a moment, and institute this rule: 'Each person can speak up for himself only after he has first restated the ideas and feelings of the previous speaker accurately, and to that speaker's satisfaction.'"
+Premature problem solving:
+"Sound simple, doesn't it? But if you try it you will discover it is one of the most difficult things you have ever tried to do. If you really understand a person in this way, if you are willing to enter his private world and see the way life appears to him, you run the risk of being changed yourself, You might see it his way, you might find yourself influenced in your attitudes or personality. This risk of being changed is one of the most frightening prospects of most of us can face."
+Listening is a form of thinking on the parts of the speaker and on the parts of the listener. The one speaking formulates and orders ideas into coherent speech, while the one listening is trying to understand the words spoken. Asking clarifying questions helps both parties clear up the ideas, cutting through the confusions that there may lurk.
 
 #### In the realm of hungry ghosts - Gábor Máté
 
