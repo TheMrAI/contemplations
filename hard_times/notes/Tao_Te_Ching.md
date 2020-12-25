@@ -38,6 +38,10 @@ with desiring things, not with getting them or producing them. Desire breeds gre
 and confusion but if one can act without desire, without contrivance then the
 options become limitless.
 
+## Chapter 4-5
+
+X
+
 ## Chapter 6
 
 **Mystic Female**
@@ -89,6 +93,10 @@ The **Tao Axiom**. Colorless, formless, shapeless, began in nothing and it will
 return to nothing after an eternity. It cannot be named, but it can be used to live
 life properly.
 
+## Chapter 15
+
+X
+
 ## Chapter 16 -- *Acceptance is divine*
 
 The self is safe when it has accepted itself and by doing so detached itself from
@@ -97,3 +105,79 @@ achieve tranquility. By looking inwards and finding the truth one reaches
 constancy a form of clarity. Achieving this allows for radical acceptance
 without judgement which is the manifestation of the divine.
 
+## Chapter 17
+
+The highest level of influence is achieved by not forcing. When the influence is so
+subtle that the influenced feel as things went the natural way.
+
+## Chapter 18
+
+When the Tao is lost, intelligence takes it's place, but by loosing the divine,
+chaos ensues.
+
+## Chapter 19
+
+> "Show plainness; hold simplicity
+Reduce selfishness; decrease desires"
+
+## Chapter 20
+
+X
+
+## Chapter 21
+
+The Tao is unclear and it cannot be clear. It is all that is and should be, the
+essence of life and within it lies faith.
+
+## Chapter 22
+
+The sage does not force things to be and that is why things come to be. "The one
+who yields and remains whole". Things that are not meant to be will not be, that is
+why one should yield and go where they need to go. Where is that can only be known
+by becoming whole and returning to oneself.
+
+## Chapter 23
+
+Life should be embraced with all it's pains and pleasantries. Loss has to be
+embraced for loss to embrace us, virtues need to be embraced before they can bless
+us. One cannot get without giving and the Tao accepts all when it is accepted.
+
+## Chapter 24
+
+Similar message as in Chapter 22.
+
+## Chapter 25
+
+Similar to Chapter 21. The Tao is divine and thus cannot be fully understood.
+
+## Chapter 26
+
+X
+
+## Chapter 27
+
+A sage helps where it can and does not abandon anyone. A bad person is as necessary
+for the good person as the good for the bad. The good person can teach the bad one
+and the bad acts as a source of meaning for the good one.
+More generally a problem needs it's solver. The solver must appreciate the problem
+and vice-versa otherwise things get confused and one is left wondering of the
+chaos. This is called the **Essential wonder**.
+
+## Chapter 28
+
+To live properly the two sides always have to be integrated at once. To act
+rightly one must know how to be bad. To be masculine, one has to be able to be
+feminine. To be boundless one has to know their limits. If things are kept in the
+balance the world remains whole.
+
+## Chapter 29
+
+Arrogance, excess and extremes are far from balance and cannot be. Existence seeks
+balance and whether by force or wit one tries to change this, they will inevitably
+fail.
+
+## Chapter 30
+
+Force has to be applied only at need and only as much as absolutely necessary.
+Control is unnatural and whoever seeking it will find themselves taxed in kind.
+Nothing can be taken without paying the price.
