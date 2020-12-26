@@ -176,8 +176,136 @@ Arrogance, excess and extremes are far from balance and cannot be. Existence see
 balance and whether by force or wit one tries to change this, they will inevitably
 fail.
 
-## Chapter 30
+## Chapter 30-31
 
 Force has to be applied only at need and only as much as absolutely necessary.
 Control is unnatural and whoever seeking it will find themselves taxed in kind.
 Nothing can be taken without paying the price.
+
+## Chapter 33
+
+The symbol of the self being as the base for real strength and peace appears again.
+Similarly the act of serving others. Service for others allows one to not be
+forgotten after they have died.
+
+## Chapter 34-37
+
+The Tao nourishes all the same, without judgement or desire. Whether bad or good
+happens the Tao flows the same.
+Acceptance is key. Not a thing can be forced. Whenever force is applied to opposite
+outcome manifests, but by accepting, the barriers can be dissolved.
+
+## Chapter 38
+
+By controlling things we are misguided in everything we do and without the
+stability of the peace of mind we loose control. Then trying to chase it more and
+more only leads to chaos. When control is released one can see what is real, what
+has real value.
+
+## Chapter 39
+
+The good and the bad are the two sides that belong together and only by achieving
+oneness can stability be attained. However when something of value is achieved, one
+mustn't forget that loss is necessary as well. Taking pride in what is takes away
+it's value, especially as many things in life the result was perhaps nothing more
+than luck.
+
+## Chapter 40
+
+The circularity of life and of everything. What begins, ends and what ends shall
+begin.
+
+## Chapter 41-43
+
+Not forcing idea again.
+
+## Chapter 44-46
+
+Too much of anything, especially when sought takes the value away and prepares one
+for failure.
+
+## Chapter 47
+
+Everything one needs is already within.
+
+## Chapter 48
+
+**Unattached action** is the key for progressing.
+
+## Chapter 49
+
+An open mind allows one to connect with everyone, to listen to everyone and by 
+doing so accept them.
+
+## Chapter 50
+
+X
+
+## Chapter 51
+
+**Mystic Virtue** - "Produces but does not possess
+Acts but does not flaunt
+Nurtures but does not dominate"
+
+## Chapter 52
+
+X
+
+## Chapter 53
+
+The Tao is simple like a great river. Deviate to the banks and you are lost. Too
+much or too little is bad the same way.
+
+## Chapter 54
+
+At the center of all things lies the individual. When the individual is put
+together, the family can be put together, then the community and finally the whole
+country. By constantly fixing bigger and more complex things, everything becomes
+better.
+
+## Chapter 55
+
+Carry yourself properly and the world may not hurt you.
+
+## Chapter 56
+
+**Mystic Oneness** - Think before you speak and speak only when necessary, avoid
+the extremes and find the answers.
+
+## Chapter 57-59
+
+The less force the better.
+
+## Chapter 60
+
+As the Tao is based on no force it cannot do harm.
+
+## Chapter 61
+
+Ask and it shall be given to you.
+
+## Chapter 62
+
+X
+
+## Chapter 63
+
+Be humble and do what you can right now. Do the best you can right now. It doesn't
+have to be something big. Every small task eventually leads to the solution of
+something great. Handle the completion of small tasks with just as much value as
+the completion of big tasks would be.
+
+## Chapter 64
+
+Life is easy when things are going our way, but when they get hard many of us fail.
+People start on long journeys without knowing the road or the end, so when they
+would finally finish they get careless and fail. By desiring the end we loose the
+sight of what is. Letting go of desire, letting go of unnecessary things will
+redeem the people.
+
+## Chapter 65
+
+The **Mystic Virtue** lies in simplicity. Simple things are simple by definition.
+They do not bring excess complexity to life and with less complexity, people
+flourish.
+
