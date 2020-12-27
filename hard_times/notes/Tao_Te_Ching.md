@@ -309,3 +309,102 @@ The **Mystic Virtue** lies in simplicity. Simple things are simple by definition
 They do not bring excess complexity to life and with less complexity, people
 flourish.
 
+## Chapter 66
+
+One of the clearest chapters. After reading it multiple times it seems clear that
+this chapter is the most important one. Simply states what the Tao is about.
+To move forward or to get in front of things one must approach the everything
+with humility. With the acceptance that they may not be able to change anything
+for the better.
+As they are not trying to force one thing or another they do not encounter
+resistance and without resistance things naturally progress as they should.
+
+An example is given of working with people. If one wishes to help them, to detach
+from them (put themselves before them, same idea of getting above them in a
+hierarchy) then one must approach them with utmost humility. Has to listen to them
+and help in the exact way they wish to be helped. Then others will not feel
+burdened or controlled and they would wish to comply even more.
+
+## Chapter 67 -- *3 pillars*
+
+Compassion, conservation and not daring to be ahead in the world is what makes the
+Tao so great.
+
+Compassion allows one to have courage to act. If things are valuable then we can
+sacrifice for them.
+
+Conservation gives meaning to everything that already is in the world. Our current
+situation and opportunities. By seeing the meaning in everything there is we can
+act in a way that has beneficial impact on everything. Those benefits propagate
+outwards and thus soon will have a great impact upon the world.
+
+Not daring to be ahead in the world is that one does not allow themselves to think
+that they are in any way better than anybody else. There is great humility in this
+idea. By doing this one stays grounded at all times and people would naturally look
+for their guidance.
+
+## Chapter 68
+
+**Virtue of non-contention** is about not forcing. A theme that appears through and
+through in the text.
+
+## Chapter 69
+
+Compassion.
+
+## Chapter 70-72
+
+Humility.
+
+## Chapter 73
+
+Same idea of no force is repeated again.
+
+## Chapter 74
+
+X
+
+## Chapter 75
+
+Desiring things inevitably corrupts the outcome. Even the want for life can corrupt
+life itself. Wanting more takes away from others, if others have too little we all
+suffer.
+
+## Chapter 76
+
+Being adaptive and flexible is the source of life. Dead things are hard and brittle
+, living things are soft and supple. The way of life is flexibility, the way of
+death is hardness.
+
+## Chapter 77
+
+A confusing idea that appears again and again. The Tao is about balance and
+balancing without forcing or claiming credit for the outcome. A sense of detached
+action permeates the idea. One does not desire to have things so they can give it
+away, one does not desire to receive so they can truly help and because the outcome
+is not claimed, whether it is good or bad one can proceed.
+
+## Chapter 78
+
+Water is used as a metaphor for acting without force. It is shapeless and formless,
+yet it can take any form, it is soft, yet it can grind mountains into dust.
+
+## Chapter 79
+
+Holding onto resentment corrupts connections. It is not one's duty to enforce or
+judge how someone behaves, but it is their duty to keep true to their word.
+
+## Chapter 80
+
+This chapter is the same as the idea in the [Bible - Matthew 5:5](https://biblehub.com/matthew/5-5.htm):
+> Blessed are the meek, for they will inherit the earth.
+Meek - "the character of one who has the passion of resentment under control, and
+who is therefore tranquil and untroubled" - Ellicott's Commentary for English
+Readers on the above linked page
+
+## Chapter 81
+
+Truth is hard and we must face it, but we cannot force others to do so. We can only
+give. Give the help to change, give the support for change, but not the necessity
+for change. By that we would desire them to change and that spoils our intentions.
+To get, one must give first.
