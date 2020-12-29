@@ -19,7 +19,8 @@ should read a bit more about the topic, so that I have something to actually say
 First task is to collect the information. Listed a few books below that have
 already inspired me and some that should be read and understood fully. What doing
 this has shown me is that I seem to have accidentally started attacking the
-problem from every side. The Psychological aspects, offering solutions from our understanding of human behavior, Military aspects or how a modern warrior would
+problem from every side. The Psychological aspects, offering solutions from our
+understanding of human behavior, Military aspects or how a modern warrior would
 handle life. Lastly from a Religious aspect. Based on generational knowledge and
 wisdom that seems to have been lost in the modern world. Discarded for facts and
 proofs, however they might be more important now than ever to glue humanities
@@ -38,6 +39,10 @@ Write some notes, then outlines.
 
 #### In the realm of hungry ghosts - Gábor Máté
 
+#### The Choice: Embrace the Possible
+
+#### Man's Search for Meaning - Viktor E. Frankl, Harold S. Kushner
+
 ### Military
 
 #### Can't hurt me - David Goggins
@@ -49,6 +54,11 @@ Write some notes, then outlines.
 #### Tao Te Ching - Lao Tzu
 
 #### The Book on the Taboo Against Knowing Who You Are - Alan Watts
+
+### Other
+
+#### Why Young Men: The Dangerous Allure of Violent Movements and What We Can Do 
+About It - Jamil Jivani
 
 # Essay
 
