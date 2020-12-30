@@ -484,3 +484,37 @@ reached it's maximum.
 That is what the **Essential Wonder** means. Everything that there is has something
 opposing it and the "eternal battle" of these forces is what it means to be. To
 embrace life one has to accept the necessity of everything there is.
+
+### Mystic Oneness
+
+Mystic Oneness is the observation that all that one needs is within. If the balance
+within the person is achieved then there is little that can be of harm coming
+from the outside.
+“When there is no enemy within, the enemy outside can do you no harm.” -African
+Proverb
+Are you confident in your abilities? Do people around you challenge that
+confidence? To which extent they are right? They might be right, but they will
+never completely be. Your reality is only yours to have. Listening to outside
+influences and confusing our inner world are separate things. One can listen, but
+not be shaken to the core by what is learned.
+Life is undeniably very hard and one is well instructed to accept that fact. In
+whatever way they have managed to survive was the right way. There is no need or
+reason to dwell on past mistakes other than observing what could have been done
+better. That is it and that is all. When accepting **The Essential Wonder** of life
+one accepts all of their mistakes as necessary steps towards the valued future.
+A balance of mistakes and victories have to exist, and only mistakes can teach us
+the valuable lessons that we need proceeding forward.
+Mystic Oneness is the realization that I as an entity am fallible and mortal. I
+will make mistakes because that is the nature of things. People will make mistakes
+, because that is the nature of things. I will fail in my journey/task/duty,
+because that is the nature of things.
+By accepting ones wretchedness one can become powerful beyond comprehension. The
+moment this step is taken, one has accepted that they will inevitably fail, they
+have understood that that is a necessary step; and have decided, despite all of
+that, that whatever they have set out to accomplish is worth every moment of all
+that it takes to live it trough.
+This is what it means to be one with oneself. Accepting total responsibility to
+who we are with all of it's negative and positive aspects and striving to proceed
+in the direction which we, as individuals, see fit.
+The beauty of life is within us all, we are divine just by being here, accepting
+that is the greatest gift we can receive and give to others as well.
