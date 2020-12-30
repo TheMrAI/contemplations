@@ -428,3 +428,59 @@ hurt by whatever may come.
 The **Tao Axiom**. Colorless, formless, shapeless, began in nothing and it will
 return to nothing after an eternity. It cannot be named, but it can be used to live
 life properly.
+
+## The Tao as I have understood it
+
+The Tao Te Ching [Tao and Virtue Classic - Derek Lin](http://taoism.net/tao/about-the-tao-te-ching/) is about life itself. Simply stated it is how things
+were, are and should be and what that understanding means to a person trying to
+live life to the fullest.
+
+The Tao encompasses life itself with everything and all within it so even trying to
+name this way of life is faulty. A humbling observation that should be kept at the
+forefront of our minds while trying to comprehend a text such as the The Te Ching.
+It would be arrogant to assume we, as mortal individuals, could possibly come up
+with a fitting name that would state the totality of life. That said we have to
+talk about it, because it is important and as such the Tao was used. It must be
+remembered, however that the Tao that we name isn't the Tao that we are trying
+to name.
+
+Perhaps the ideas can be boiled down to the psychological term of radical
+acceptance. It might be an oversimplification, but it can be an helpful idea.
+> Radical acceptance: "Accepting life on life's terms and not resisting what you
+cannot or choose not to change. Radical acceptance is about saying yes to life,
+just as it is." - Dr. Karin Hall, Psychology Today
+
+It does it little justice, but to be able to handle the material the core ideas
+presented in it have to be brought to the surface. None of these ideas can be
+truly separated from one another, but yet again, the topic handled here is about
+everything and all, and how one should act knowing the ramifications of that.
+
+The core ideas represented in the text are the Mystic Virtue, Mystic Oneness and
+the Essential Wonder. Each depend on one another forming a coherent whole. To
+understand that concept let's first examine the idea of Essential Wonder.
+
+### The Essential Wonder
+
+The Essential Wonder is best represented by the well known Chinese symbol of the
+Ying and Yang.
+![Ying and Yang](yin_and_yang.svg)
+
+Absolutely everything one can perceive exists in balance with a counterpart. Both
+sides are of the exact same importance and cannot exist without one another.
+Darkness cannot exist without light, happiness cannot exist without suffering and
+love cannot exist without hate. The key observation here is that both sides are
+not just necessary, but are actually the same thing. If one thing cannot exist
+without the other than they are in essence a single entity. In this sense to truly
+embrace the positive side of anything the negative side has to be embraced as well.
+This sounds simple, but in practice means that if one truly loves to help people
+they are grateful for having people around who need help. The idea seems
+counterproductive. Very few people would dare to claim that they like people
+suffering, but this is exactly what the symbol represents. Or in other terms that
+may be easier to connect with, if one enjoys having good days when everything goes
+perfectly and worry seems like a distant idea, then they also enjoy the days when
+catastrophes are lining up, the future is uncertain and internal suffering has
+reached it's maximum.
+
+That is what the **Essential Wonder** means. Everything that there is has something
+opposing it and the "eternal battle" of these forces is what it means to be. To
+embrace life one has to accept the necessity of everything there is.
