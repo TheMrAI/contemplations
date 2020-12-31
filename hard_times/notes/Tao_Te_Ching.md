@@ -37,7 +37,7 @@ home, warm food, health.
 #### Chapter 17
 
 The highest level of influence is achieved by not forcing. When the influence is so
-subtle that the influenced feel as things went the natural way.
+subtle that the influenced feels as things went the natural way.
 
 #### Chapter 22
 
@@ -492,8 +492,9 @@ within the person is achieved then there is little that can be of harm coming
 from the outside.
 “When there is no enemy within, the enemy outside can do you no harm.” -African
 Proverb
+
 Are you confident in your abilities? Do people around you challenge that
-confidence? To which extent they are right? They might be right, but they will
+confidence? To which extent are they right? They might be right, but they will
 never completely be. Your reality is only yours to have. Listening to outside
 influences and confusing our inner world are separate things. One can listen, but
 not be shaken to the core by what is learned.
@@ -518,3 +519,44 @@ who we are with all of it's negative and positive aspects and striving to procee
 in the direction which we, as individuals, see fit.
 The beauty of life is within us all, we are divine just by being here, accepting
 that is the greatest gift we can receive and give to others as well.
+
+### Mystic Virtue
+
+The last part to the Tao seems to be the idea of not forcing, called as **Mystic
+Virtue** from the text.
+A profound idea that is only understandable in conjunction with **The Essential
+Wonder** and **Mystic Oneness**.
+Not forcing means that one does not desire any outcome, does not wish to achieve
+for the sake or achieving. Desire is depicted as something that ultimately corrupts
+all ideas, intents and emotions. One cannot truly help anyone if they desire to
+help them. Why? Because then you either force a solution on the individual or
+you manipulate them in ever so subtle ways so that you may get ahead in life,
+disguised as help. You may want to fell better, by making them feel better.
+In other words you are not one with yourself and that is corrupting your
+originally genuine intentions.
+
+The issue is not with acting in a way that is aimed at producing an outcome.
+Necessity can be a perfectly viable force guiding our actions and keeping them
+true. The necessity for influence so that one can help other people is worlds apart
+from desiring to get influence. The first one is honest and humble, free from other
+baggage while the second approach has some lie in it. Something sinister.
+
+When things or outcomes are not desired then the person is in essence free from
+failing in achieving them. This brings them more attuned with **The Essential
+Wonder**. They accept that reality is not there to serve them in any way and things
+more often than not might not work out as aimed at. That is okay. Necessity will
+sustain a person in a given pursuit even if failure was faced many times, desire
+cannot.
+
+Not desiring and not forcing doesn't mean that force cannot or should not be
+applied. Sometimes it is unavoidable to apply force. The difference between doing
+it properly and improperly is in the desire of doing so. If one takes up arms to
+protect themselves then they act out of necessity. However, if they take up arms
+so they can take revenge then they are acting out of the desire to have the
+revenge. In that they corrupt their character and keep on propagating the suffering
+that has prompted them to take action.
+
+Achieving things, producing value, helping others, acting out of necessity are all
+good things as long as one dares not take pride in their successes. Succeeding is
+a good thing. Lording that success over others on the other hand is filled with the
+desire to be better than them.
