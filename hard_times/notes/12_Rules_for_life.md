@@ -1,5 +1,8 @@
 # 12 Rules for Life An Antidote to Chaos - Jordan B. Peterson
 
+> "What do you do when horrible things are chasing you? Turn around! Chase them
+back!" - Jordan B. Peterson : [Jordan Peterson : The Exclusive Uncut Interview](https://youtu.be/daVjWUCIbAc?t=6507)
+
 I have read this book at least 4 times up to this point. 12 rules or more
 precisely guidelines have been presented by Jordan trying to help someone live a
 better life. I say they are better conceptualized as guidelines, because Jordan at
