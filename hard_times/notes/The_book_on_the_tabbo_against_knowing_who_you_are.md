@@ -129,3 +129,58 @@ These sentences are harsh, but deep inside we know them to be true. Non the less
 been made into genuine fakes so successfully that we would cling to our freedom tormented
 by perpetual suffering and inevitable end, instead of embracing our unity binding us
 together with everything there is.
+
+## Four - The world is your body
+
+The world is your body or your body is the world. You are what you are and the world is
+what the world is. Things occur in a way that causality rises as the side-effect of
+observing parts of the whole. In this sense the cause of death is birth as everything
+that lives eventually dies. They cannot be separated as matter cannot be separated from
+space. Without space there cannot be something and without something there is no space.
+
+> Apart from your brain, or some brain, the world is devoid of light, heat, weight
+solidity, motion, space, time, or any other imaginable feature. All these phenomena are
+interactions, or transactions, of vibrations with a certain arrangement of neurons. Thus
+vibrations of light and heat from the sun do not actually become light or heat until they
+interact with a living organism, just as no light-beams are visible in space unless
+reflected by particles of atmosphere or dust. In other words, it "takes two" to make
+anything happen.
+
+That said you are what the environment needs and the environment is what needs you. Without
+something to perceive it there might as well be nothing out there. Moreover an organism is
+fully bound by the limits imposed on it by the environment. No organism exists without its
+habitat and no environment exists without an organism either.
+
+The advent of scientific thinking gave us the power and the know-how to bend the world to
+our will, but in our conquest of becoming powerful we separated ourselves from the
+inseparable. We became an utterly unimportant little germ in an unimaginably vast and
+enduring universe.
+
+Our lives are more than little flashes in the incomprehensible vastness of the cosmos.
+If that were the case we might as well call it a day and get it over with. If the cause
+of death is life then why even start it?
+
+> It is not possible that this unity of knowledge, feeling and choice which you call your
+own should have sprung into being from nothingness at a given moment not so long ago;
+rather this knowledge, feeling and choice are essentially eternal and unchangeable and
+numerically one in all men, nay in all sensitive beings. But no in this sense - that you
+are a part, a piece, of an eternal, infinite being, an aspect or modification of it, as in
+Spinoza-s pantheism. For we should have the same baffling question: which part, which
+aspect are you? What, objectively, differentiates it from the others? No, but
+inconceivable as it seems to ordinary reason, you - and all other conscious beings as
+such - are all in all. Hence this life of yours which you are living is not merely a piece
+of the entire existence, but is in a certain sense the whole; only this whole is not so
+constituted that it can be surveyed in one single glance. - Erwin Schrödinger
+
+If I am what is, what is ought to be, and I am you, then there isn't really no
+difference between you or me or any conscious being. When I die, you take my place, when
+you die I will take your place.
+
+> Thus you can throw yourself flat on the ground, stretched out upon Mother Earth, with the
+certain conviction that you are on with her and she with you. you are as firmly
+established, as invulnerable as she, indeed a thousand times firmer and more invulnerable.
+As surely as she will engulf you tomorrow, so surely will she bring you forth anew to new
+striving and suffering. And not merely 'some day': now, today, every day she is bringing
+you forth, not once but thousands upon thousands of times, just as every day she engulfs
+you a thousand times over. For eternally and always there is only now, and the same now;
+the present is the only thing that has no end. - Erwin Schrödinger
