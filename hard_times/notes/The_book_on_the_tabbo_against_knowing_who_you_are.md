@@ -6,17 +6,17 @@ The chapter is about how people have lost their ability to know themselves.
 The real self. As if it became a taboo to talk about who a given individual is.
 Alan shows that the purpose of religions at their core is to show us that the individual
 is the manifestation of the divine. We as individuals, the animals around us, the trees
-and the sky, the good and the bad are all God. He stipulates that this has been lost 
-throughout the ages, because people had to form groups of beliefs and when groups are 
-formed the goal changes from improving all to a perpetual game of one-upmanship. My 
-religion is more virtuous than yours etc. 
+and the sky, the good and the bad are all God. He stipulates that this has been lost
+throughout the ages, because people had to form groups of beliefs and when groups are
+formed the goal changes from improving all to a perpetual game of one-upmanship. My
+religion is more virtuous than yours etc.
 Not to mention that modern individuals can't even comprehend the archaic texts, with
-outdated examples and stories. 
+outdated examples and stories.
 
 Without the redeeming nature of religion, of the belief in a higher good and value, the
 individual is left with nothing but the realization that they are nothing more than little
 tubes putting food in one end and excreting the result at another end. The tube make other
-tubes so when their inevitable death finally arrives they don't fully disappear. 
+tubes so when their inevitable death finally arrives they don't fully disappear.
 
 > Our generation knows a cold hell, solitary confinement in this life, without a God to
 damn or save it. Until man figures out the trap and hunts ... "the Ultimate Ground of
@@ -27,7 +27,7 @@ really a person but a victim of self-extinction. - T. George Harris
 I think that, just that paragraph alone describes everything that is wrong in the world
 today.
 
-Although religion is very important to the author he points out that there is no single 
+Although religion is very important to the author he points out that there is no single
 good answer and more importantly, even the pursuit for finding such an answer is false.
 
 > Irrevocable commitment to any religion is not only intellectual suicide; it is positive
@@ -184,3 +184,82 @@ striving and suffering. And not merely 'some day': now, today, every day she is 
 you forth, not once but thousands upon thousands of times, just as every day she engulfs
 you a thousand times over. For eternally and always there is only now, and the same now;
 the present is the only thing that has no end. - Erwin Schrödinger
+
+## Five - SO WHAT?
+
+As we have seen previously an individual who is hoaxed into the illusion of being an
+independent entity cannot convince themselves that they belong. This breeds quilt and
+resentment. To mitigate these feelings the individual makes the most heroic efforts to
+support equality, social change and progress. But because they themselves don't belong
+and have no idea who they are, they are never satisfied.
+
+> Nothing satisfies and individual incapable of enjoyment.
+
+Life is not lived in the moment, but experiences are gulped down in the relentless pursuit
+to satisfy the insatiable hunger. Days follow days, where the best we can remember is the
+vague outline of the things that have happened and we have happened to perceive them as
+important. Nothing seems to be enough, because things have no meaning at all. The
+individual fails to see the double bind. The more they struggle to fill the void in
+themselves the more they fail in doing so. The more they decide to go with the flow, the
+more will they struggle not to struggle. Each direction is wrong. There is no way out and
+only frustration ensues. The individual fails to develop a sense of love for themselves,
+for everything there is. They become the specks of dust against the inevitable doom and to
+fight back this feeling all effort is made to elevate themselves, but these efforts are
+hollow.
+
+> This is why moralistic preaching is such a failure: it breeds only cunning
+hypocrites-people sermonized into shame, guilt, or fear, who thereupon force themselves to
+behave as if they actually loved others, so that their "virtues" are often more
+destructive, and arouse more resentment, than their "vices".
+
+Nothing causes more destruction then the love of someone who cannot love or the help from
+who does not sincerely wish for things to be better. The quest however has been set and
+"I" depends on it, so it will be done. Whether you like it or not. Actions such as these
+are ultimately aimed solely at the protection of the fragile "I". The hoax of separateness
+pits the "I" against everything there is outside of it. To survive it has no other choice,
+but to fight tooth and nail. Virtue rises without substance and violence is bred where
+piece was intended.
+
+The issue is not with the intentions, the issue is with who you think or where taught
+you are. Simply there is no you.
+
+> The only real "you" is the one that comes and goes, manifests and withdraws itself
+eternally in and as every conscious being. For "you" is the universe looking at itself
+from billions of points of view, points that come and go so that the vision is forever
+new. What we see as death, empty space, or nothingness is only the trough between the
+crests of this endlessly waving ocean. It is all part of the illusion that there should
+seem to be something to be gained in the future, and that there is an urgent necessity to
+go on and on until we get it. Yet just as there is no time but the present, and no one
+except the all-and-everything, there is never anything to be gained - though the zest of
+the game is to pretend that there is.
+
+There is no difference between the perceived "I" and everything there is. It is true you
+are nothing but a particle in a vast universe, but you are part of it. Without you the
+waves of life would not be as they should be. You have a part to play in all this whole.
+It just happens to be that the contribution of each player in this game of eternity is
+infinitesimally small. This however does not mean that any player is without need.
+Without your eyes there is no light, without your ears there is no sound, without death
+there is no life and without pain there can be no joy. Everything, absolutely everything
+matters. You need the people you hate so they keep you vigilant, you need the people you
+love so they comfort you. You need the misfortunes of life so that you can appreciate what
+is.
+
+What has really changed then if you adopt this understanding and observe the dissolution
+of the "I" as the mirage that it is? Absolutely nothing except that now, you are not alone.
+You are not a soldier facing a foe that cannot be defeated, but a part of an endless game
+played with yourself. You want to have this game as fascinating as it can be, so you play
+your part as well as you can. You appreciate your hardships, your victories and sorrows,
+because now you have the little twinkle in your eyes and you know this is why this is worth
+playing. One second you are the villain, the other the saint. As no good story is
+interesting without hardships your life isn't either.
+
+> To play so as to be relaxed and refreshed for work is not to play, and no work is well
+and finely done unless it, too, is a form of play.
+
+You still make choices and you still make plans, but you know it is all just a game and
+the part you play is just as important as any other. Even the mundane tasks of life can
+be exceedingly interesting if they are played well. Cooking for example is a choir for some
+who do not play it well, but some do and they become chefs. Being a bus driver could be a
+tedious drag or a game of dodging and weaving. The number of games are endless and we all
+must play some of them. What we have to decide is to play it the best we can and make it
+interesting for "ourselves".
