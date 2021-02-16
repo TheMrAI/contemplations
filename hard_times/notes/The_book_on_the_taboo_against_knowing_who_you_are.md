@@ -263,3 +263,53 @@ who do not play it well, but some do and they become chefs. Being a bus driver c
 tedious drag or a game of dodging and weaving. The number of games are endless and we all
 must play some of them. What we have to decide is to play it the best we can and make it
 interesting for "ourselves".
+
+## Six - IT
+
+There are questions in life that have no meaning at all and asking them perhaps looks
+profound, non the less leads to nowhere. One of these questions is "What is everything?".
+There is no answer to such question as the class of everything defines it. It puts
+boundaries around it. Not to mention the previously discussed duality of things, for there
+to be everything there has to be nothing. The two poles cannot be discussed separately as
+they are part of the process of being.
+
+To be able to think about anything in a meaningful way, without going round and round, one
+has to familiarize themselves with this **correlative vision**. The eternity of black and
+white, where the opposites are not separate at all, but part of the same process.
+
+> To go anywhere in philosophy, other than back and forth, round and round, one must have
+a keen sense of correlative vision. This is a technical term for a thorough understanding
+of the Game of Black-and-white, whereby one sees that all explicit opposites are implicit
+allies-correlative in the sense that they "gowith" each other and cannot exist apart.
+
+People have evolved and developed more and more ingenious ways to describe and quantize
+the world. We have made so much progress and made such a complex universe that now even
+the image of God is not enough to explain how all this works. We are left alone with an
+inevitable death. But...
+
+> Is it possible that myself, my existence, so contains being and nothing that death is
+merely the "off" interval in an on/off pulsation which must be eternal-because every
+alternative to this pulsation (e.g., its absence) would in due course imply its presence?
+Is it conceivable, then that I am basically an eternal existence momentarily and perhaps
+needlessly terrified by one half of itself because it has identified all of itself with
+the other half?
+
+If that is true, perhaps we can go further. Ask not the questions that have no meaning,
+rather realize that we are IT. If I am the single process encompassing self and other,
+subject and object, organism and environment then I truly exist and will exist.
+
+The word IT is insufficient to describe what I and you are. But we can accept it as a
+convention, just like we accept the convention of perspective portrayed by lines meeting
+at a vanishing point on a flat image as 3 dimensional representation.
+
+The final notes from Alan:
+
+> Now you know-even if it takes you some time to do a double-take and get the full impact.
+It may not be easy to recover from the many generations through which the fathers have
+knocked down the children, like dominoes, saying, "Don't you dare think that thought!
+You're just a little upstart, just a creature, and you had better learn your place." On
+the contrary, you're IT. But perhaps the fathers were unwittingly trying to tell the
+children that IT plays IT cool. You don't come on (that is, on stage) like IT because you
+really are IT, and the point of the stage is to show on, not to show off. To come on like
+IT-to play at being God-is to play the Self as a role, which is just what it isn't. When
+IT plays, it plays at being everything else.
